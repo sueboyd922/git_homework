@@ -3,3 +3,6 @@ I understand that I'm  not always going to get everything right away and that th
 
 One strategy I am committed to working with is trying to keep up with my calendar. I haven't really used one in the past, but I haven't had too many things to keep organized. So far google calendar seems pretty easy to keep organized and move things around.
 Something I'm trying today while working on Mod 0 homework and project is putting my phone aside with a timer to stop playing my music after 45 min to tell me to take a break but now I'm also not distracted by my phone. We will see how it works.
+
+A shout-out to my friends here at home for being super supportive of me quitting a job where we all have worked for years and never telling me it was the wrong choice.
+Also a shout-out to the people I've met in our breakout rooms so far! Excited to continue working with you!
