@@ -1,0 +1,2 @@
+After my first two sessions of Mod 0 I'm very excited to get started and I've realized just how important it is to have my time organized. I haven't done much the last few months so I need to work a bit harder to get into a routine that I can stick with to be more successful.
+I understand that I'm  not always going to get everything right away and that there are plenty of resources available for me to get help, starting with trial and error on my own, to google, to my cohort mates on slack and also all the instructors if all else fails!
