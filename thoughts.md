@@ -6,3 +6,6 @@ Something I'm trying today while working on Mod 0 homework and project is puttin
 
 A shout-out to my friends here at home for being super supportive of me quitting a job where we all have worked for years and never telling me it was the wrong choice.
 Also a shout-out to the people I've met in our breakout rooms so far! Excited to continue working with you!
+
+
+Break out rooms woo!
